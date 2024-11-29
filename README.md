@@ -1,1 +1,1 @@
-Board Game Colletive Tools
+Board Game Collective Tools
